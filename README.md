@@ -12,7 +12,7 @@ Extra leggings
 
 Water bottle
 
-Hygiene bag
+Hygiene supplies
 
 ## Etiquette
 
