@@ -1,28 +1,23 @@
-## Pack
+Angle the opponent actively.
 
-Mouthguard
+Move yourself away from the opponent.
 
-Knee Sleeves
+Frame using your bones.
 
-Headgear
+## Neutral
 
-Rash guard
+Fireman's carry
 
-Extra leggings
+High single leg
 
-Water bottle
+Double leg
 
-Hygiene supplies
+## Top Position
 
-## Etiquette
+Slide arm down
 
-Shake hands with coach
+Half nelson
 
-Greet teammates
+## Bottom Position
 
-## Drill
-
-Practice shots and sprawls first
-
-Practice everything from stance position
-`
+Look away and stand
