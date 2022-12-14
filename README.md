@@ -1,22 +1,38 @@
+Move thoughtfully at the beginning of match.
+
+Give it your all towards the end.
+
+Harrass the head.
+
 Angle the opponent actively.
 
 Move yourself away from the opponent.
 
 Frame using your bones.
 
+Listen to coach.
+
+Defer when given a choice between positions.
+
 ## Neutral
 
-Fireman's carry
+Practice touching opponent (posting)
 
-High single leg
+Collar tie
+
+Ankle pick
 
 Double leg
 
 ## Top Position
 
-Slide arm down
+Chop opponent's arm down
+
+Cradle
 
 Half nelson
+
+Armbar
 
 ## Bottom Position
 

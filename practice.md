@@ -12,17 +12,9 @@ Leggings
 
 Water bottle
 
-Hygiene supplies
-
 ## Etiquette
 
 Shake hands with coach
 
 Greet teammates
-
-## Drill
-
-Practice shots and sprawls first
-
-Practice everything from stance position
 
