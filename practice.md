@@ -14,7 +14,5 @@ Water bottle
 
 ## Etiquette
 
-Shake hands with coach
-
 Greet teammates
 
