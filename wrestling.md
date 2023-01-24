@@ -1,5 +1,7 @@
 Shoot immediately off the whistle in overtime
 
+Arch back while pinning
+
 Keep feet balanced and heavy
 
 Circle
@@ -10,15 +12,9 @@ Collar tie
 
 Inside tie
 
-Slide-by to trip
-
-Wrist
-
 Single leg
 
 Ankle pick
-
-High crotch
 
 <!--Fireman's Carry-->
 
@@ -26,7 +22,7 @@ High crotch
 
 Spiral ride
 
-Chop opponent's arm down
+Head lever
 
 Half nelson
 
@@ -36,6 +32,6 @@ Armbar
 
 Grab wrist
 
-Switch
-
 Sit-out
+
+<!--Switch-->
